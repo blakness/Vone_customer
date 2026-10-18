@@ -1,1 +1,0 @@
-# Vone_customer
